@@ -1,1 +1,0 @@
-# KonKuk_majorBasicProject2
